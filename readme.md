@@ -2,6 +2,7 @@
 | ![Banner Image](./images/Wanderings07.jpg) |
 |:--:|
 | *For FB banner* |
+
 Ravi Gupta is storyteller. He likes to tell stories visually. Either, in the form of an illustration, sequential art, animated film or simply through how a character looks and behaves.
 Ravi completed his Graduate Diploma in Animation and Film Design from MIT Institute of Design, Pune. He also holds a Bachelor of Arts Degree with major in English.
 
